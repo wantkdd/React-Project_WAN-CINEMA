@@ -1,3 +1,4 @@
 ## WAN CINEMA
 
-![image.png](attachment:2aba6bc7-9bfe-4451-9828-a99acb094071:image.png)
+![image](https://github.com/user-attachments/assets/99396c38-fe2e-4844-b2a3-9c21e4ea3573)
+
